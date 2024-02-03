@@ -24,3 +24,11 @@ I'm actively working on exploring new ideas and projects and as a passionate dev
 
 Connect with me on other platforms:
 - 📷 [Instagram](https://www.instagram.com/_.esoteric_lassie._/)
+- 📚 [Medium](https://medium.com/@priyadarshinisathishkumar1986)
+- 🔗 [LinkedIn](www.linkedin.com/in/priyadarshini-sathish-kumar-a16552247)
+
+## Let's Connect!
+
+Feel free to connect with me on other platforms. I'm always open to new opportunities and collaborations.
+
+Thank you for visiting my GitHub profile! ✨
